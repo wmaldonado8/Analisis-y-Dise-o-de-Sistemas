@@ -1,0 +1,1 @@
+https://parsif.al/Adriana_Conde/metodologias-de-la-elicitacion/
